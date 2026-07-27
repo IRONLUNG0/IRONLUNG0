@@ -1,11 +1,9 @@
-<img width="1280" height="91" alt="Image" src="https://github.com/user-attachments/assets/e68d34ec-7d55-45a3-a737-d77cbfb8e859" />
-<img width="650" height="650" alt="Image" src="https://github.com/user-attachments/assets/ad3dbfaf-6a6f-415b-af15-7850a9dd4663" />
+<img width="1000" height="166" alt="Image" src="https://github.com/user-attachments/assets/38ae9ec0-6e9e-4855-a6c5-2451300a3e0c" />
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/500d9210-035f-484e-beb0-4411902e3a66" />
 
- <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d6c84de8-87aa-4eab-98a6-3a8f76c46c18" />⠀<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/a4c90891-f6fc-458c-941b-b446434d6be1" /> ⠀ 
- [ata](https://twixbar.atabook.org) ✦ [strawpage](https://cookiesyums1.straw.page) ⠀⠀ 
- <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/80871eaf-067a-4368-ab80-b7c2e27f95dc" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/e11fd9f3-e81b-4d1c-9894-6588e1c94e19" /> <img width="100" height="56" alt="Image" src="https://github.com/user-attachments/assets/72bf73db-76bd-4acb-83f1-70fb44c159a4" /> ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+ ⠀ ⠀ ⠀ ⠀[ata](https://twixbar.atabook.org) ✦ [strawpage](https://cookiesyums1.straw.page) ⠀⠀ 
+ <img width="50" height="69" alt="Image" src="https://github.com/user-attachments/assets/405b5f90-14ec-4e34-86cc-3948579a8b26" />
 
-<img width="1278" height="96" alt="Image" src="https://github.com/user-attachments/assets/18e03013-45d2-461f-a911-1666c151c271" />
-
-⠀ ⠀ ⠀⠀  14  ⠀ ⠀ ⠀⠀ ⠀ilmbf ^_^   check le strawpage  ⠀ ⠀ ⠀for more info about me !!
- 
+ ⠀ ⠀ ⠀ ⠀ ⠀1 4͟   ⠀ ⠀ ⠀ ⠀ '  ilmbf  (˶>⩊<˶)
+   ⠀ ⠀ ⠀ armin arlert 's sweetie  !!  <img width="1000" height="166" alt="Image" src="https://github.com/user-attachments/assets/0a9712d3-3e27-4faf-96e7-ec768d4b1448" />
