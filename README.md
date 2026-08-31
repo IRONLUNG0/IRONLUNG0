@@ -1,9 +1,11 @@
-<img width="1000" height="166" alt="Image" src="https://github.com/user-attachments/assets/38ae9ec0-6e9e-4855-a6c5-2451300a3e0c" />
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/500d9210-035f-484e-beb0-4411902e3a66" />
+ <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/d1b9a421-c9dc-460c-b8f0-4417bdebddee" />⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/e11fd9f3-e81b-4d1c-9894-6588e1c94e19" /> <img width="100" height="56" alt="Image" src="https://github.com/user-attachments/assets/72bf73db-76bd-4acb-83f1-70fb44c159a4" /> ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
- ⠀ ⠀ ⠀ ⠀[ata](https://ilovearminalrt.atabook.org) ✦ [strawpage](https://cookiesyums1.straw.page) ⠀⠀ 
- <img width="50" height="69" alt="Image" src="https://github.com/user-attachments/assets/405b5f90-14ec-4e34-86cc-3948579a8b26" />
+<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/6fa8d881-e11f-4084-ae12-cc82a7f9e2c1" /> <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/dd34b0ae-9bc7-4cbc-ac14-cd57c3ec2c0d" />
+ ⠀ ⠀ ⠀ ⠀
+ 
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/21db8fb4-fbf0-494d-b4ea-d7c3b8413c88" />  ⠀ ⠀ ⠀ [ata](https://ilovearminalrt.atabook.org) ⠀ ⠀ ✦ [strawpage](https://oceaneyes1.straw.page)  ⠀ ⠀  <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7b3184e2-6b79-4b6d-9470-1417ebdfea5e" />⠀⠀ 
 
- ⠀ ⠀ ⠀ ⠀ ⠀1 4͟   ⠀ ⠀ ⠀ ⠀ '  ilmbf  (˶>⩊<˶)
-   ⠀ ⠀ ⠀ armin arlert 's sweetie  !!  <img width="1000" height="166" alt="Image" src="https://github.com/user-attachments/assets/0a9712d3-3e27-4faf-96e7-ec768d4b1448" />
+   ⠀ ⠀ ⠀ αямιη arlert 's sweetie  < 3   ⠀ ⠀double’s  𝐃𐓣𝗂 !   ⠀ ⠀⠀ ⠀ ⠀
+  
+  <img width="2048" height="435" alt="Image" src="https://github.com/user-attachments/assets/4d979fd6-afed-44a9-8dd0-dd410c907e67" />
+   
